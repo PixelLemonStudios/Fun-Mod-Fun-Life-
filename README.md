@@ -1,0 +1,2 @@
+# Fun-Mod-Fun-Life-
+FunMod was made really just for fun. i was bored and JMod is hard to make. so i decided to make a stupid little mod after people were raging all over the place asking "WHAT IS FunMod!?!?!?!?" I decided to make a release of it!! If you call this a GMod ripoff hear me out please: I plan to do one thing Garry doesn't..... Update the game and let people know what Im working on. Garry doesn't even play GMod anymore and I'm tired of it so if you've given up hope on GMod updates you'll like this game!! When released, we will upload lots of updates!!
